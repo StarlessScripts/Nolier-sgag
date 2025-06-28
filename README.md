@@ -1,2 +1,0 @@
-# Nolier-sgag
-Idk
